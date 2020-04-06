@@ -1,0 +1,2 @@
+# milanatkew
+"Milan At Kew is an Indian Restaurant with over 30 years of experience in the hospitality industry across Asia and Europe. Our chef trained and worked in Calcutta and Punjab brings the authentic tastes of India to all the curries and The Great Indian BBQ from our classic charcoal-fired Tandoor served at Milan at Kew. We offer great ambiance to our customers where they can relax and enjoy our hospitality at Indian Restaurant Kew to the fullest. "
